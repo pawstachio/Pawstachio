@@ -1,4 +1,4 @@
-![Alt text](https://files.catbox.moe/sxbw6a.jpg)
+![Alt text](https://files.catbox.moe/al7jd1.png)
   <span style="color: #ffb6c1;">
   
  <p align="center">
